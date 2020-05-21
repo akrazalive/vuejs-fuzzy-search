@@ -1,0 +1,1 @@
+ya alaka kwana wrkawaye tol umar da PTI wala
